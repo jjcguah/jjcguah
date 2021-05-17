@@ -1,2 +1,2 @@
 # jjcguah
-Juan J. Caudrado Gallego
+Juan J. Cuadrado Gallego
